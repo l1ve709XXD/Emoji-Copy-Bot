@@ -1,8 +1,8 @@
 ########################################
 ##                                    ##
 ##   Support:                         ## 
-##   Instagram :l1ve709               ##
-##   Discord : unk709/l1ve709.com     ##
+##   Instagram :ediz.dll              ##
+##   Discord : cxnsole     ##
 ##                                    ##
 ##                                    ##
 ##     --Made By Ediz SÖNMEZ--        ##  
